@@ -46,4 +46,4 @@ Having trouble with Pages? Check out our [documentation](https://help.github.com
 coming out of my cage and i've been doing just fine
 
 ```
-[Link](https://open.spotify.com/playlist/6jl7VlTKzS33f9GnnLYC2x?si=487821fe061f40c7)
+[🔥](https://open.spotify.com/playlist/6jl7VlTKzS33f9GnnLYC2x?si=487821fe061f40c7)
